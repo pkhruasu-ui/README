@@ -13,8 +13,8 @@ For some of the basic rules, include but not limited to:
  - Anything is permitted if members can benefit from it. Whether it is workshop, work-related presentation, a toast in a wedding. Toastmaster setup is a "guideline", not a law. 
 
 
-####                                       "If it is good, keeep it going. If not, wrap it up."
-####                              "You can do anything you want, as long as you don't cause any trouble"
+                                       "If it is good, keeep it going. If not, wrap it up."
+                              "You can do anything you want, as long as you don't cause any trouble"
  
  - We still need to run this club like an organization. So don't act without a consent from officers ( until you are an officer).  
 
