@@ -19,7 +19,7 @@ For some of the basic rules, include but not limited to:
 1. Speak your goal. Everyone has their own agenda and I would not like to play a mind-guessing game. If you say you can do once a month. I am totally fine with it, even if you want to quit. Just let us know ahead of time.
 2. Be consistent. I value action than words.
 3. Don't dissappoint yourself. Personal improvement is ...personal. Garbage in, garbage out. You get what you put in.
-4. Respect people's background who might have different opinion than you.
+4. Respect people's background who might have different opinion from you.
 
 ## What you could expect from us
 1. A platform. everyone chips in their valuable time to keep the club running. I don't want to make it feels like a second job for people. This is a hobby afterall.
