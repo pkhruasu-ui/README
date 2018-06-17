@@ -33,11 +33,17 @@ For some of the basic rules, include but not limited to:
 
 # A litile bit about myself
 I am from Thailand. I have 2 younger brothers and 2 older cousins( I consider them older brothers) who have been with me since I was a kid. Love small dogs and cats.
+
 I can enjoy nightlife and/or enjoy reading a good book on a relax day.
+
 I feel older than I normally am. Have a crush on so many older women.
+
 **I am a realist but not extremist**. I don't believe that everyone has to strife for perfection or that we all have a great destiny ahead.
+
 I work in some shapes or forms all throughout my life so I don't have much experience in casual social setting ( hence a bit introvert ).
+
 **Excessive talking** is a trigger for me.
+
 **All talk and no action** is a trigger for me.
 My way of talking is a bit in-your-face style.
 I have too much pride( proven by friends ) so I probably need a therapy.
