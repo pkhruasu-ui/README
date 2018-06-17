@@ -14,6 +14,8 @@ For some of the basic rules, include but not limited to:
  
                                        "If it is good, keeep it going. If not, wrap it up. "
                               "You can do anything you want, as long as you don't cause any trouble"
+ 
+ - We still need to run this club like an organization. So don't act without a consent from officers ( until you are an officer).  
 
 ## What I would expect from you
 1. Speak your goal. Everyone has their own agenda and I would not like to play a mind-guessing game. If you say you can do once a month. I am totally fine with it, even if you want to quit. Just let us know ahead of time.
@@ -40,11 +42,11 @@ My way of talking is a bit in-your-face style.
 I have too much pride( proven by friends ) so I probably need a therapy.
 
 #### Something I learn throughout my life
-1. Put yourself in environment that helps you grow, or grow your environment. (2014)
-2. You should get rewarded for things you are good at, monetary or not. (2015)
-3. Do not mistake friends with collegue.(2013) 
-4. Walk the line between self centric and people centric side. You don't want to be an ungrateful person or people pleaser.(2017)
+1. Put yourself in an environment that helps you grow, or grow your own environment. (2014)
+2. You should be rewarded for things you are good at, monetary or not. (2015)
+3. Do not mistake friends with collegues.(2013) 
+4. Walk the line between self centric and people centric. You don't want to be an ungrateful person or people pleaser.(2017)
 5. People don't change by you. They change themselves.(2011) 
-6. Do not put too much emotional investment into something that does not have a good return in money or relationship. (2018) 
+6. Do not put too much emotional investment into something that does not have a good return in _money or relationship_. (2018) 
 7. Automate decision for small things like, for example where to park at the office, what to eat during lunch, or should we have meeting 
    or not. (2014)
