@@ -12,8 +12,8 @@ For some of the basic rules, include but not limited to:
  - Every meeting must have at least 1 speaker, whether it is a partial or incomplete speech. I am ok with unprepared speech and you can come back over and over until you are satisfied ( or we get bored of it).
  - Anything is permitted if members can benefit from it. Whether it is workshop, work-related presentation, a toast in a wedding. Toastmaster setup is a "guideline", not a law. 
  
-                                       "If it is good, keeep it going. If not, wrap it up. "
-                              "You can do anything you want, as long as you don't cause any trouble"
+                                       **_"If it is good, keeep it going. If not, wrap it up."_**
+                              **_"You can do anything you want, as long as you don't cause any trouble"_**
  
  - We still need to run this club like an organization. So don't act without a consent from officers ( until you are an officer).  
 
