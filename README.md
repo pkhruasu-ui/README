@@ -1,10 +1,10 @@
 # Welcome to Slicon Valley English-Vietnamese Toastmaster
 Welcome to our little hangout place. As you know, everyone is here to improve their public speaking skill. It is going to take you quite a while to adjust to our club. You might feel the urge to shy away from being put under a spotlight or give a speech. And you might get the feeling that we would try to push you as much as you can. But let me assured you, everyone here is doing this with good faith.
 
-# Transformational Leadership
+### Transformational Leadership
 I think of myself as having a tough love mentality when it comes to personal improvement or to anyone I care. There is no better joy to me than seeing a member set up a small challenge by themselves and strife to complete it. But since this is not a school or workplace. The challenge should not be monumental or time consuming. We have our own work and family to worry about after all.
 
-# Our Average Meeting & Rules
+### Our Average Meeting & Rules
 We go to a predefined time and place, do 3 sections dictated by the organization (prepared speech, table topic, evaluation), and have food afterward. Any special event will be announced or may just impromptu if I found something interesting we can try.
 
 For some of the basic rules, includ but not limited to:
@@ -12,7 +12,7 @@ For some of the basic rules, includ but not limited to:
  - Every meeting we must have at least 1 speaker, whether it is a partial or incomplete speech. I am ok with unprepared speech and you can come back over and over until you are satisfied ( or we get bored of it).
  - Anything is permitted if members can benefit from it. If it is good, keeep it going. If not, wrap it up. Toastmaster setup a "guideline", not a law. 
  
- "If it is good, keeep it going. If not, wrap it up. "
+                                       "If it is good, keeep it going. If not, wrap it up. "
 
 # What I would expect from you
 1. Speak your goal. Everyone has their own agenda and I would not like to play a mind-guessing game. If you say you can do once a month. I am totally fine with it, even if you want to quit. Just let us know ahead of time.
