@@ -45,7 +45,9 @@ I work in some shapes or forms all throughout my life so I don't have much exper
 **Excessive talking** is a trigger for me.
 
 **All talk and no action** is a trigger for me.
+
 My way of talking is a bit in-your-face style.
+
 I have too much pride( proven by friends ) so I probably need a therapy.
 
 #### Something I learn throughout my life
