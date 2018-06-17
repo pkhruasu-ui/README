@@ -8,12 +8,15 @@ I think of myself as having a tough love mentality when it comes to personal imp
 We go to a predefined time and place, do 3 sections dictated by the organization (prepared speech, table topic, evaluation), and have food afterward. I am flexible enough that I would not be holding resentment if any meeting will be in a complete failure (we have had those).
 
 # What I would expect from you
-1. Speak your goal. Everyone has their own agenda and I would not like to play a mind-guessing game. If you say you can do once a month  
-   and can only give a speech once every two months. I am totally fine with it.
-2. Be consistent. I value action than words. 
+1. Speak your goal. Everyone has their own agenda and I would not like to play a mind-guessing game. If you say you can do once a month and can only give a speech once every two months. I am totally fine with it. Just let us know ahead of time.
+2. Be consistent. I value action than words.
+3. Don't dissappoint yourself. Personal improvement is ...personal. 
+4. Respect people's background who might have different opinion than you.
 
 # What you could expect from us
-
+1. A platform. everyone chips in their valuable time to keep the club running. I don't want to make it feels like a second job for people. This is a hobby afterall.
+2. Camaraderie. This place is not a job and I would love for professional people to connect more on a personal level. We have food and share story after the meeting. Sometimes we go out hiking. Toastmaster is for toasting the good story being told.
+3. Semi-casual atmoshphere. 
 
 
 
